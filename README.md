@@ -1,0 +1,1 @@
+# QuickPos-Landing-Page-Software-Project-Management-Assingment
